@@ -2,7 +2,7 @@
 
 > **一句话评价：先判断是否适合：原辉耀网络，纯公网直连与原生ISP资源，提供月流量及全年包。**
 >
-> 👉 **[官网注册](https://s1.fluxlink.top/#/register?code=4L8cbmkA)** · 建议从 标准会员 的短周期开始，先核对客户端和常用节点。
+> 👉 **[官网注册](https://s1.fluxlink.top/#/register?code=H6lCti8g)** · 建议从 标准会员 的短周期开始，先核对客户端和常用节点。
 >
 
 >
@@ -63,7 +63,7 @@
 
 ## 注册
 
-👉 **[前往云翼网络注册页面](https://s1.fluxlink.top/#/register?code=4L8cbmkA)** · 付款前逐项核对当前套餐名、周期、流量与使用限制。
+👉 **[前往云翼网络注册页面](https://s1.fluxlink.top/#/register?code=H6lCti8g)** · 付款前逐项核对当前套餐名、周期、流量与使用限制。
 
 ## 更新
 
